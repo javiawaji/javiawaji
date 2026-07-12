@@ -1,3 +1,4 @@
+<p align="center"> <img width="733" height="220" alt="Untitled560_20260711203250" src="https://github.com/user-attachments/assets/9d4cfc42-dcd3-45e6-be4a-fb9b7f29e13e" />
 <p align="center"> $\text{\color{#D5C5C8}they say I}$ $\text{\color{#9EA2A5}changed}$ $\text{\color{#D5C5C8}a lot}$&emsp; $\text{\color{#FFFFFF}ᘡ}$    ࣪&emsp; $\text{\color{#D5C5C8}I say a lot}$ $\text{\color{ #9EA2A5}changed}$ $\text{\color{#D5C5C8}me}$
 <p align="center"> <img width="500" height="500" alt="ochako1" src="https://github.com/user-attachments/assets/55a802e9-ea81-48bd-89d0-91732938d68a" /p>
 <p align="center"> $\text{\color{#FFFFFF}٫٫}$ &emsp; $\text{\color{#D5C5C8}I}$ $\text{\color{#9EA2A5}hide}$ $\text{\color{#D5C5C8}freely}$
