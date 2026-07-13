@@ -4,3 +4,5 @@
 <p align="center"> $\text{\color{#FFFFFF}٫٫}$ &emsp; $\text{\color{#D5C5C8}I}$ $\text{\color{#9EA2A5}hide}$ $\text{\color{#D5C5C8}freely}$
 <p align="center"> $\text{\color{#D5C5C8}c+h w/}$ $\text{\color{#FFFFFF}friends}$ $\text{\color{#D5C5C8} &ensp;⁺&ensp;friends of friends}$ &emsp; $\text{\color{#9EA2A5}no inspo}$ &ensp; $\text{\color{#FFFFFF}!!}$
 <p align="center">  $\text{\color{#FFFFFF}›}$&ensp; $\text{\color{#9EA2A5}copy}$ &ensp; $\text{\color{#FFFFFF}=}$ &ensp; $\text{\color{#FFFFFF}instant block}$&ensp; $\text{\color{#FFFFFF}‹}$
+<p>
+<img scr="<img width="200" height="200" alt="chakostamp1" src="https://github.com/user-attachments/assets/a5e8b98c-366a-449e-9fd6-a3c55df3f5be" />
