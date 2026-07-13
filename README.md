@@ -5,5 +5,5 @@
 <p align="center"> $\text{\color{#D5C5C8}c+h w/}$ $\text{\color{#FFFFFF}friends}$ $\text{\color{#D5C5C8} &ensp;⁺&ensp;friends of friends}$ &emsp; $\text{\color{#9EA2A5}no inspo}$ &ensp; $\text{\color{#FFFFFF}!!}$
 <p align="center">  $\text{\color{#FFFFFF}›}$&ensp; $\text{\color{#9EA2A5}copy}$ &ensp; $\text{\color{#FFFFFF}=}$ &ensp; $\text{\color{#FFFFFF}instant block}$&ensp; $\text{\color{#FFFFFF}‹}$
 <p>
-<p align="center"> <img scr="<img width="200" height="200" alt="chakostamp1" src="https://github.com/user-attachments/assets/403fa696-fc14-4bab-8f5e-cff275ffb75d" alt="Image Alt Text"> <br> <a href="https://javiawaji.straw.page>strawpage<a/> />&nbsp; <img scr="<img width="200" height="200" alt="chakostamp2" src="https://github.com/user-attachments/assets/033cec0a-88ed-4423-8c43-53227a0c909a" />
+<p align="center"> <img scr="<img width="200" height="200" alt="chakostamp1" src="https://github.com/user-attachments/assets/403fa696-fc14-4bab-8f5e-cff275ffb75d" /> &nbsp; <img scr="<img width="200" height="200" alt="chakostamp2" src="https://github.com/user-attachments/assets/033cec0a-88ed-4423-8c43-53227a0c909a" />
 
